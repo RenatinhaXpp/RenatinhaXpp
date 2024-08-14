@@ -1,6 +1,7 @@
 ### Nosferatu
 
-![](https://literaryfictions.com/wp-content/uploads/2016/10/nosferatu-gif-coming-through-doorway.gif)
+![](![image](https://github.com/user-attachments/assets/f93e5b90-d04e-4f1b-a239-9ef371b5cd27)
+)
 <!--
 **RenatinhaXpp/RenatinhaXpp** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
